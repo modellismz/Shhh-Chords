@@ -1,4 +1,4 @@
-Thank you support us naaaaa
+Thank you for supporting us naaaaa
 
 
 CD: dtinth krubb
